@@ -9,5 +9,8 @@
 # About Me
 
 ## My Interests
+I really enjoy doing things like Rock climbing, Hiking, Traveling, playing Volleyball, and playing Games.
 
 ## Websites I Recommend
+[WakeTech](https://www.waketech.edu/) is a website for anyone interested in the school to find more about what they have to offer.
+Watch amazing videos on [YouTube](https://www.youtube.com/) or you can even create your own videos and share them to the internet!
