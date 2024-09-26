@@ -6,3 +6,8 @@
 	a. Select "clone a repository" on my GitHub Desktop
 	b. Choose the location for the repository, which I chose my fall school file.
 	c. Then I clicked on "Clone repository"
+# About Me
+
+## My Interests
+
+## Websites I Recommend
